@@ -1,2 +1,2 @@
 # yoyomedia
-Godsmm is a fast, affordable SMM panel delivering instant followers, likes, views, and comments for Instagram, Facebook, YouTube, TikTok, and more. Perfect for influencers, brands, and resellers, it offers 24/7 support, quick delivery, and reliable growth tools to boost your social media presence.
+YoYoMedia is your go-to SMM panel for boosting followers, likes, views, and engagement across Instagram, Facebook, YouTube, TikTok, and more. With fast delivery, affordable rates, and 24/7 support, YoYoMedia helps influencers, brands, and marketers grow their online presence quickly and effectively.
